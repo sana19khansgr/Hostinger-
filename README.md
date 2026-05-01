@@ -1,4 +1,4 @@
-# Hostinger Coupon Code (April 2026) – Upto 95% discount
+# Hostinger Coupon Code (May 2026) – Upto 95% discount
 
 
 Starting a website can be expensive if you do not choose the right hosting provider. This is where Hostinger coupon codes help reduce your cost.
